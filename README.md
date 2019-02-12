@@ -5,7 +5,6 @@ fcc？<br>
 别看群里各种人说他们**啥也不会**，说什么**我是萌新**之类的话<br>
 事实上他们命令 建筑 cb 生存 pvp 红石 c4d等等是**样样精通**啊<br>
 就我一个只能抱着自己在角落里**默默哭泣**<br>
-<!-- 我永远喜欢托尔！ （强势分割线）-->
 (QAQ.jpg<br>
 
 ----------
@@ -13,10 +12,9 @@ fcc？<br>
 没了吧...<br>
 哦对还有我的站点<br>
 <a href="https://amazefcc233.com">fccの博客</a>！（强势广告）<br>
-<!-- 我永远喜欢托尔！ （强势分割线）-->
 ....你不想进来？<br>
 那就直接给你看好了。你划几下也行呐awa...<br>
-<iframe src="https://amazefcc233.com/index.php"></iframe>
+<iframe src="https://amazefcc233.com/index.php"></iframe><br>
 里面还有福利呐！<br>
 来看看吧awa...<br>
 
@@ -28,13 +26,12 @@ fcc？<br>
 **白鼠今天女装了吗？**<br>
 **震撼上线**！<br>
 <a href="https://bs.amazefcc233.com">点此访问>></a><br>
-<!-- 我永远喜欢托尔！ （强势分割线）-->
 白鼠，<br>
 ## 赶紧女装吧！<br>
 
 ----------
 另外，这里还有个我的皮肤。<br>
-<img src="https://render.namemc.com/skin/3d/body.png?skin=e2cd631aa21c475e&model=slim&theta=-30&phi=20&time=90&aspect=0.75&scale=10" />
+<img src="https://render.namemc.com/skin/3d/body.png?skin=e2cd631aa21c475e&model=slim&theta=-30&phi=20&time=90&aspect=0.75&scale=10" /><br>
 对就是这个。<br>
 （图片要是加载不出来gwps，又不是我的站= =）<br>
 皮肤有最多22.2%是自己手工制作的<br>
